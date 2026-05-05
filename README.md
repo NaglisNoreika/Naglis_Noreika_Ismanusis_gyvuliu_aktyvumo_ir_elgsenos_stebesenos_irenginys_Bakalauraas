@@ -1,0 +1,1 @@
+# Naglis_Noreika_Ismanusis_gyvuliu_aktyvumo_ir_elgsenos_stebesenos_irenginys_Bakalauraas
